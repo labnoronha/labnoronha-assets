@@ -1,0 +1,1 @@
+# labnoronha-assets
